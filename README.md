@@ -1,6 +1,6 @@
 # CS-18000-Homework-04-Repetition-solved
 
-Download Here: [CS 18000 Homework 04: Repetition solved]([CS 18000 Homework 04: Repetition solved](https://jarviscodinghub.com/assignment/homework-04-repetition-solution/))
+Download Here: [CS 18000 Homework 04: Repetition solved](https://jarviscodinghub.com/assignment/homework-04-repetition-solution/)
 
 For Custom/Original Work email jarviscodinghub@gmail.com/whatsapp +1(541)423-7793
 
